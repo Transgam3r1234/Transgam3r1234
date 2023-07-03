@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @Transgam3r1234 Also known as Eddie. 
+- 👐 I’m @Transgam3r1234 Also known as Eddie. 
 - 👀 I’m interested in Gaming, Music, Finding friends, Art, and Fandoms. 
 - 🌱 I’m currently learning How to draw bodies 
